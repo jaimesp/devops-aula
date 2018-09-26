@@ -1,1 +1,4 @@
-Vera Fisher, Olivia Newton John, BrunaMarquesini
+Vera Fisher
+Deborah Seco
+Bruna Marquesini
+Paulo Goulart
